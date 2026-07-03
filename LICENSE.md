@@ -1,4 +1,4 @@
-# 
+# anime card clash Scripts professional is the best anime card clash Script, featuring auto-collect and no clip. Safe and powerful for all your needs.
 
 
 
